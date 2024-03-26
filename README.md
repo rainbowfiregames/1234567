@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there! There are a bunch of games on here! Enjoy! 👋
 
 <!--
 **rainbowfiregames/rainbowfiregames** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
